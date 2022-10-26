@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @naoyanaonaoya
+# 👋 Hi, I’m @naoya-imai
 - 東京大学大学院工学系研究科機械工学専攻所属
 - 修士2年
 
